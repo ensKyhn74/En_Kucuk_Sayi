@@ -1,0 +1,1 @@
+# En_Kucuk_Sayi
